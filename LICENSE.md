@@ -1,4 +1,4 @@
-
+Craft for macOS exclusive Workflow: OCR scanning & focus mode is the best Craft for macOS workflow, featuring OCR scanning and focus mode. Safe, efficient, and optimized for macOS
 
 
 
